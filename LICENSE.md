@@ -1,4 +1,4 @@
-#  
+#  steal the brainrot base Script best offers the most advanced steal the brainrot base Script, with silent aim and auto-heal. Perfect for dominating
 
 
 
